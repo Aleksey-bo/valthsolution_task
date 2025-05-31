@@ -1,1 +1,0 @@
-# valthsolution_task
